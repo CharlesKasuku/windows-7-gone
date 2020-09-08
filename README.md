@@ -1,2 +1,2 @@
 # windows-7-gone
-kuboeka tu
+why is it that windows 7 support is no more.
